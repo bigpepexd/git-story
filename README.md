@@ -50,3 +50,11 @@ They were thrilled about their new transformations and wanted to tell show every
 
 Breinleigh woke up in an empty room, tied to a chair. She immediately began to struggle, trying to escape, but couldn't. Then, the door opened, and in walked the table. It silently walked around her, saying nothing. Until suddenly, the table ripped off Breinleigh's diamond earing. She screamed, and went into a giant fit of rage, completely destroying the chair she was tied to. Breinleigh was transforming again, but this time, she grew giant muscles, lost her hair, and was much taller. She had become the Rock. With her newfound power, she began to beat the fork out of the table.
 
+
+
+
+
+
+
+
+Breingleigh had been transported to Jumanji and took the place of Dr. Smolder Bravestone. The table transformed into a massive wild beast and started gnawing on her arm. She was surprisingly unphased by the monster though and flicked it off with ease. She jumped on a tree, bodyslammed the table and then did the rocks famous smolder. This transformation was too incredible, she had become much stronger. Then she turned around and saw her final foe.
