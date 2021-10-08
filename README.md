@@ -18,3 +18,9 @@ Standing next to Breinleigh was Jamal, he couldn't believe what he saw happen to
 
 
 The table began to attack Breinleigh, violently hitting her with a valentino white bag. However, she fought back, using her newfound Kardshian powers. She slashed the table with her nails, whipped with her long pony tail, and bumped with her hips that don't lie. The table was on the floor, knocked out from the impact of Kim hips, and Breinleigh didn't waste any time making a run for the door. She ran out the door and through a very long hallway, going as far as her heels would take her. But the table was on the move, running very quickly to Breinleigh. The table tackled her to the floor with a slam, and like that, Breinleigh was knocked out cold.
+
+
+
+
+
+Breinleigh woke up in an empty room, tied to a chair. She immediately began to struggle, trying to escape, but couldn't. Then, the door opened, and in walked the table. It silently walked around her, saying nothing. Until suddenly, the table ripped off Breinleigh's diamond earing. She screamed, and went into a giant fit of rage, completely destroying the chair she was tied to. Breinleigh was transforming again, but this time, she grew giant muscles, lost her hair, and was much taller. She had become the Rock. With her newfound power, she began to beat the fork out of the table.
