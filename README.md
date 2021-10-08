@@ -10,10 +10,12 @@ Breinleigh walked over to the giant ugly table and said "Omg you're so ugly, I'm
 
 
 
+
 Standing next to Breinleigh was Jamal, he couldn't believe what he saw happen to Breinleigh and the table. Jamal grew to like the idea of transforming himself into a handsome man. He took a bite out of what used to be the table and what is now Breinleigh's old self, the earth began spinning within Jamals head. Then poof he was back to himself, well not quite. He looked over at Breinleigh as he was looking for the pocket mirror in her hand. Breinleigh was in shock and couldn't believe what she saw. Jamal grabs the mirror from her hands and takes a look at himself, "OMG IM KANYE WEST" he said with a bit of joy and surpise. 
 
 
  
+
 
 
 
@@ -26,4 +28,15 @@ The table began to attack Breinleigh, violently hitting her with a valentino whi
 
 
 
+
+
 They were thrilled about their new transformations and wanted to tell show everyone. The two of them went to their friend judiah's house and knocked on the door. Judiah opened the door and passed out immediately. After Breinleigh and Jamal started smacking Judiah in the face to wake up, he eventually starts to get up. After he gets up he said "Holy toledo boledo foledo! Are you Kanye and Kim? Jamal and Breinleigh looked at each other and laughed, "No Judiah, its Jamal and Breinleigh we ate a table and turned into Kanye and Kim". Judiah looked confused and said "What? How do you turn back to yourself?" Jamal and Breinleigh turned to each other with worry in their eyes. "I don't know" they said. 
+
+
+
+
+
+
+
+
+Breinleigh woke up in an empty room, tied to a chair. She immediately began to struggle, trying to escape, but couldn't. Then, the door opened, and in walked the table. It silently walked around her, saying nothing. Until suddenly, the table ripped off Breinleigh's diamond earing. She screamed, and went into a giant fit of rage, completely destroying the chair she was tied to. Breinleigh was transforming again, but this time, she grew giant muscles, lost her hair, and was much taller. She had become the Rock. With her newfound power, she began to beat the fork out of the table.
